@@ -1,2 +1,0 @@
-# maaz.github.io
-profile
